@@ -1,13 +1,19 @@
-# Hi, I'm Gopuu 👋
+# Hi, I'm Gopuuv 👋🏻
 
 ## About Me
-- 🎓 Student | Content Creator
-- 💻 Learning new skills everyday
+
+- 🎬 Mobile CapCut Video Editor
+- 📱 Content Creator | Reels Specialist  
 - 🌍 From India
+- 🚀 Always learning new trends
 
 ## Skills
-- Video Editing
-- Social Media
+- 🎥 Video Editing (CapCut)
+- 📊 Social Media Growth
+- 🎨 Thumbnail Design
+- 🎵 Trending Audio Selection
 
+## My Some Works.
+Gopuuv_ShortForm_Portfolio / Instagram - gopuuveditz 🫶🏻
 ## Contact
-- 📧 goppuuuv09@gmail.com
+- 📧 goppuuuv09@gmail.com 
